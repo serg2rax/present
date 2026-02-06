@@ -1,6 +1,6 @@
 | Что 							          | сколько примерно |
 |-----------------------------------------------------------------|------------------|
-| Матрица IPS для ноутбука B125HAN02.2 (Матовая) - разъем спарва. |https://www.ozon.ru/product/matritsa-sovmestimaya-s-b125han02-2-hw-2a-fw-1-612097172/ | 5k|
+| Матрица IPS для ноутбука B125HAN02.2 (Матовая) - разъем спарва. https://www.ozon.ru/product/matritsa-sovmestimaya-s-b125han02-2-hw-2a-fw-1-612097172/ | 5k|
 |Тач для ноутбука стеклянный Lenovo ThinkPad Carbon x1 gen 6.  https://www.ozon.ru/product/01lv563-01lv564-01lv565-dlya-lenovo-thinkpad-x1-carbon-6-go-pokoleniya-versiya-s-sensornoy-panelyu-3074317753/ | 2k |
 |Багажник для Toyota fielder 2016, для велосипедов на крышу. | 10k |
 |Моющий полисос | 10k |
