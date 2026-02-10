@@ -7,6 +7,6 @@
 |Автомойка от сети (Большая напольная не та что в руку помещается). | 5k|
 | Положить на мобильный 300р. +7(993)-646-97-76 для интернета (сам не считаю нужным это делать, но иногда было бы удобным). | 300 |
 |Кожаные перчатки размер M. | 2k|
-|Блесна Daiwa chinook S - 10-18 г. https://www.ozon.ru/product/blesna-daiwa-chinook-10g-1090101851/?at=oZt6Yq9kxtvA6DKxtONGMVVupWDqyDUAM4155fyWglY6 | 1k |
+|Блесна Daiwa chinook S - 10-18 г. https://www.ozon.ru/product/blesna-daiwa-chinook-10g-1090101851/?at=oZt6Yq9kxtvA6DKxtONGMVVupWDqyDUAM4155fyWglY6  https://www.ozon.ru/product/blesna-daiwa-laser-chinook-s-14gr-0741-2774-3421864665/?at=RltyWmYN7uV3x2KlTg26WrqS792zMoU2Dr60wsQWMm7B | 1k |
 |Прихватки для кухни | 1k |
 |Хлебница из металла || 
