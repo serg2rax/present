@@ -10,3 +10,4 @@
 |8|Блесна Daiwa chinook S - 10-18 г. https://www.ozon.ru/product/blesna-daiwa-chinook-10g-1090101851/?at=oZt6Yq9kxtvA6DKxtONGMVVupWDqyDUAM4155fyWglY6  https://www.ozon.ru/product/blesna-daiwa-laser-chinook-s-14gr-0741-2774-3421864665/?at=RltyWmYN7uV3x2KlTg26WrqS792zMoU2Dr60wsQWMm7B | 1k |
 |9|Прихватки для кухни | 1k |
 |10|Хлебница из металла || 
+|11| Сетевая карта для ноутбука  https://www.ozon.ru/product/thinkpad-setevaya-karta-ethernet-dlya-sovremennyh-lenovo-tovar-utsenennyy-3316676892/?at=lRt6EnZXAhLvoGDyiXM1NJ4IL45DgGhnpA6mWh61K15V | 1k |
