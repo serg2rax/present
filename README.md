@@ -1,12 +1,12 @@
-| Что 							          | сколько примерно |
-|-----------------------------------------------------------------|------------------|
-| Матрица IPS для ноутбука B125HAN02.2 (Матовая) - разъем справа. https://www.ozon.ru/product/matritsa-sovmestimaya-s-b125han02-2-hw-2a-fw-1-612097172/ | 5k|
-|Тач для ноутбука стеклянный Lenovo ThinkPad Carbon x1 gen 6.  https://www.ozon.ru/product/01lv563-01lv564-01lv565-dlya-lenovo-thinkpad-x1-carbon-6-go-pokoleniya-versiya-s-sensornoy-panelyu-3074317753/ | 2k |
-|Багажник для Toyota Fielder 2016 (NZE164G), для велосипедов на крышу. | 10k |
-|Моющий пылесос | 10k |
-|Автомойка от сети (Большая напольная не та что в руку помещается). | 5k|
-| Положить на мобильный 300р. +7(993)-646-97-76 для интернета (сам не считаю нужным это делать, но иногда было бы удобным). | 300 |
-|Кожаные перчатки размер M. | 2k|
-|Блесна Daiwa chinook S - 10-18 г. https://www.ozon.ru/product/blesna-daiwa-chinook-10g-1090101851/?at=oZt6Yq9kxtvA6DKxtONGMVVupWDqyDUAM4155fyWglY6  https://www.ozon.ru/product/blesna-daiwa-laser-chinook-s-14gr-0741-2774-3421864665/?at=RltyWmYN7uV3x2KlTg26WrqS792zMoU2Dr60wsQWMm7B | 1k |
-|Прихватки для кухни | 1k |
-|Хлебница из металла || 
+| # | Что 							          | сколько примерно |
+|---|-----------------------------------------------------------------|------------------|
+|1|Матрица IPS для ноутбука B125HAN02.2 (Матовая) - разъем справа. https://www.ozon.ru/product/matritsa-sovmestimaya-s-b125han02-2-hw-2a-fw-1-612097172/ | 5k|
+|2|Тач для ноутбука стеклянный Lenovo ThinkPad Carbon x1 gen 6.  https://www.ozon.ru/product/01lv563-01lv564-01lv565-dlya-lenovo-thinkpad-x1-carbon-6-go-pokoleniya-versiya-s-sensornoy-panelyu-3074317753/ | 2k |
+|3|Багажник для Toyota Fielder 2016 (NZE164G), для велосипедов на крышу. | 10k |
+|4|Моющий пылесос | 10k |
+|5|Автомойка от сети (Большая напольная не та что в руку помещается). | 5k|
+|6| Положить на мобильный 300р. +7(993)-646-97-76 для интернета (сам не считаю нужным это делать, но иногда было бы удобным). | 300 |
+|7|Кожаные перчатки размер M. | 2k|
+|8|Блесна Daiwa chinook S - 10-18 г. https://www.ozon.ru/product/blesna-daiwa-chinook-10g-1090101851/?at=oZt6Yq9kxtvA6DKxtONGMVVupWDqyDUAM4155fyWglY6  https://www.ozon.ru/product/blesna-daiwa-laser-chinook-s-14gr-0741-2774-3421864665/?at=RltyWmYN7uV3x2KlTg26WrqS792zMoU2Dr60wsQWMm7B | 1k |
+|9|Прихватки для кухни | 1k |
+|10|Хлебница из металла || 
