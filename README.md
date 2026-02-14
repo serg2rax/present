@@ -11,4 +11,3 @@
 |9|Прихватки для кухни | 1k |
 |10|Хлебница из металла || 
 |11| Сетевая карта для ноутбука  https://www.ozon.ru/product/thinkpad-setevaya-karta-ethernet-dlya-sovremennyh-lenovo-tovar-utsenennyy-3316676892/?at=lRt6EnZXAhLvoGDyiXM1NJ4IL45DgGhnpA6mWh61K15V | 1k |
-|12| Мочалка из лески  ||
