@@ -4,6 +4,4 @@
 |2|Моющий пылесос https://www.dns-shop.ru/product/b0d71be517d62c69/pylesos-kitfort-kt-5241-belyj/ | 10k |
 |3|Автомойка от сети (Большая напольная не та что в руку помещается). https://www.dns-shop.ru/product/e6e398aa0186ed20/mojka-vysokogo-davlenia-finepower-hpc422/ | 5k|
 |4|Кожаные перчатки размер M. | 2k|
-|5|Блесна Daiwa chinook S - 10-18 г. https://www.ozon.ru/product/blesna-daiwa-chinook-10g-1090101851/?at=oZt6Yq9kxtvA6DKxtONGMVVupWDqyDUAM4155fyWglY6 <br><br> https://www.ozon.ru/product/blesna-daiwa-laser-chinook-s-14gr-0741-2774-3421864665/?at=RltyWmYN7uV3x2KlTg26WrqS792zMoU2Dr60wsQWMm7B | 1k |
-|7| Сетевая карта для ноутбука  https://www.ozon.ru/product/thinkpad-setevaya-karta-ethernet-dlya-sovremennyh-lenovo-tovar-utsenennyy-3316676892/?at=lRt6EnZXAhLvoGDyiXM1NJ4IL45DgGhnpA6mWh61K15V | 1k |
-|8| Настольные игры || 
+|7| Настольные игры || 
